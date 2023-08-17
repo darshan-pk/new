@@ -1,0 +1,2 @@
+# ALC
+assisted living community 
